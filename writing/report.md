@@ -50,5 +50,4 @@
  - The primary party that would gain from this analysis would be the police. They would be able to take a proactive approach to solving a crime versus just reacting. This could prevent damage, violence and even tragedy instead of responding after the crime already happened. With that being said, those who are falsely accused or targeted for unethical reasons, will greatly suffer from this analysis. There have been many criminals who are innocent but spend years in prison or even end up on death row due. An equitable way to implement this analysis could be to have it performed by a consistent organization, not an outside source. Additionally, training would need to take place in order to minimize bias within the analysts.  
 
 
-
 #### Did you remember to add your name to this document?
